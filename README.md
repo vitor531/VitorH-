@@ -1,8 +1,8 @@
-# Vitor Hugo
+# hello guys  🎪
 -meu perfil soft
 
--adoro k-pop
+-k-pop
 
--amo o gunwook <3
+-amo o gunwook 💟
 
 # Espero que goste do meu perfil :) 
